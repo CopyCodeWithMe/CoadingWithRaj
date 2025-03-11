@@ -32,7 +32,7 @@
 
 <br clear="both">
 
-<img align="right" height="150" src="https://i.pinimg.com/originals/e3/70/27/e370275244a960ea563490fc6078a859.gif"  />
+<img align="right" height="150" src="https://wallpapers-clan.com/wp-content/uploads/2024/04/zenitsu-lightning-demon-slayer-gif-preview-desktop-wallpaper.gif"  />
 
 ###
 
